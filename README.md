@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @rodrigogssr
+- 👀 i'm studying to get a chair at USP -> BCC B)
